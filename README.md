@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Shaista191
-- 👀 I’m interested in Gmae Development and Graphic Design
+- 👀 I’m interested in Game Development and Graphic Designing
 - 📫 How to reach me -> shaistaparpia@gmail.com
 
 <!---
